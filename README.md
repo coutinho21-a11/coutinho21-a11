@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing hhh
 - 📫 How to reach me ista: jenny.coutinho_
 - 😄 Pronouns: hhhh
-- ⚡ Fun fact: i like it eat alot
+- ⚡ Fun fact: i like to eat alot
 
 <!---
 coutinho21-a11/coutinho21-a11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
